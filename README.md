@@ -1,9 +1,8 @@
 - 👋 Hi, I’m @RokastXD
-- 👀 I’m interested in ... horse porn
-- 🌱 I’m currently learning ... hentai communism
-- 💞️ I’m looking to collaborate on ... anime futocatgirls 
-- 📫 How to reach me ... give me money
-I'm love pivo
+- 👀 I’m interested in ... 
+- 🌱 I’m currently learning ... 
+- 💞️ I’m looking to collaborate on ... 
+- 📫 How to reach me ... 
 
 <!---
 RokastXD/RokastXD is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
